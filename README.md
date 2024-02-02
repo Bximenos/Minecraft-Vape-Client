@@ -14,4 +14,4 @@
 
 𝙵 𝚄 𝙽 𝙲 𝚃 𝙸 𝙾 𝙽 𝚂 :
 
-![3](https://github.com/Bximenos/Minecraft-Vape-Client/assets/158548850/8013b088-223a-411f-8812-e3b66d627e96)
+![3](https://github.com/Bximenos/Minecraft-Vape-Client/assets/158548850/ec810cca-67cc-4048-863b-7097062d80b1)
